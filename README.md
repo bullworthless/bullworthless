@@ -14,9 +14,6 @@
 <br>
 <a href="https://rentry.co/gaary">rentry</a> <a href="https://warren.atabook.org/">atabook</a><br>
 
-<br>
-<img src="https://file.garden/aEiyzAAiJQqbXoUF/other/tumblr_4a64721d8d355372622f3241d44d2b93_002f0c3c_100.png"/><img src="https://file.garden/aEiyzAAiJQqbXoUF/d24xdws-1f7fb75d-d93b-49b7-af55-37f106b6a23c.gif"/><img src="https://file.garden/aEiyzAAiJQqbXoUF/other/haunted_mound_stamp__1_by_mochii0234_dict3af-fullview.jpg"/><img src="https://file.garden/aEiyzAAiJQqbXoUF/other/yunglean_stamp_by_cutethug999_dky70p3-fullview.png"/><img src="https://file.garden/aEiyzAAiJQqbXoUF/d2neoi4-786089bb-18de-40c5-95eb-ff5f08a0eae6.gif"/>
-     <br>
 
  
 ##
