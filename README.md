@@ -8,9 +8,6 @@
 <br>
 
 
-<br>
-<a href="https://rentry.co/gaary">rentry</a> <a href="https://warren.atabook.org/">atabook</a><br>
-
 
  
 ##
